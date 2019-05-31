@@ -1,1 +1,2 @@
-# cp1-bruh-story
+i woke up
+i went to sleep
